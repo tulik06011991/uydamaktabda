@@ -1,0 +1,2 @@
+# uydamaktabda
+uyda maktabda
